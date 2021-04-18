@@ -1,2 +1,2 @@
 # TheGermans
-This is the germans
+Zis is ze Germans. The germans do not include me, im italian.
